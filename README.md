@@ -1,1 +1,1 @@
-# MiniProject1
+ALL-Star Furniture
